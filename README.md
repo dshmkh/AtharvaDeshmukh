@@ -1,2 +1,0 @@
-# atharvadeshmukh.io
-Personal Website
